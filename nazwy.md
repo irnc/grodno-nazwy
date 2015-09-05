@@ -40,7 +40,7 @@ ich nazwach — dawnych i dzisiejszych.
 
 \* * *
 
-AKADEMICK A — Kirchowa , późnie j Koś -
+- AKADEMICK A — Kirchowa , późnie j Koś -
 cielna — na pamiątk ę istnienia szkół w zabudowaniach
 , należącyc h obecni e do ks. Czetwertyń -
 skiego, nazwanyc h w konstytucji 1793 r. gmacha -
@@ -48,11 +48,11 @@ mi akademj i (szkół: lekarskiej, budowniczyc h
 i mierniczych, a przedte m korpusu kadetów),
 pochodzącyc h z czasó w znakomiteg o podskar -
 bieg o i starosty grodzieńskiego, A. Tyzenhauza .
-ALEJ A 3 MAJA .
-ARTYLERYJSKA .
-ARTYLERYJSK I z- k otrzyma ł nazwę :
+- ALEJ A 3 MAJA .
+- ARTYLERYJSKA .
+- ARTYLERYJSK I z- k otrzyma ł nazwę :
 U L . KONNA .
-AUGUSTOWSKA .
+- AUGUSTOWSKA .
 
 ---
 
