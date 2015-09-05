@@ -18,19 +18,14 @@ DAWNE I DZISIEJSZE
 
 Nazwy placów i ulic grodzieńskich dawne i dzisiejsze.
 
-Rad a Miejsk a m. Grodna w d. 10 lutego
-1931 r. uchwalił a szere g zaprojektowanyc h prze z
-specjalną komisj ę zmian w nazwac h uli c grodzieńskich.
-Otrzymał y nazw y nowopowstał e ulice,
-ja k równie ż liczne ulic e o jednobrzmiące j
-nazwi e (Lososiańskie , Młynarskie , Górne , Pod -
-górne , Szkoln e i inne). Równie ż uczczona zosta-
-ła pamię ć o wybitnyc h bojownikac h o Niepodległoś
-ć i dobrz e zasłużonych krajowi obywate -
-lach. Na pamiątk ę 500-lecia zgonu Witolda , w .
-księci a lit., twórc y grodu grodzieńskieg o i księcia
-grodzieńskiego , jeg o imeniem została nazwan a
-ul. Bankowa .
+Rada Miejska m. Grodna w d. 10 lutego 1931 r. uchwaliła szereg zaprojektowanych
+przez specjalną komisję zmian w nazwach ulic grodzieńskich. Otrzymały nazwy
+nowopowstałe ulice, jak również liczne ulice o jednobrzmiącej nazwie
+(Lososiańskie, Młynarskie, Górne, Podgórne, Szkolne i inne). Równie ż uczczona
+została pamięć o wybitnych bojownikach o Niepodległość i dobrze zasłużonych
+krajowi obywatelach. Na pamiątkę 500-lecia zgonu Witolda, w. księcia lit.,
+twórcy grodu grodzieńskiego i księcia grodzieńskiego, jego imeniem została
+nazwana ul. Bankowa.
 
 Na podstawi e prac y Dyr . Muzeum Państwo -
 weg o w Grodnie , p. Józef a Jodkowskiego, p. t.
