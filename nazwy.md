@@ -56,13 +56,13 @@ U L . KONNA .
 
 ---
 
-BAGATEL A — międz y Garncarsk ą a Pił-
+- BAGATEL A — międz y Garncarsk ą a Pił-
 sudskiego.
-BAGN O — na przedmieściu zaniemeńskiem ,
+- BAGN O — na przedmieściu zaniemeńskiem ,
 międz y Indursk ą a Cerkiewną .
 BANKOW A — WITOLDA , w . księcia lit. (od
 1931 r.).
-BATOREG O PLA C — dawn y ryne k ratuszow
+- BATOREG O PLA C — dawn y ryne k ratuszow
 y z czasó w Bony . (Ryne k za Witold a by ł
 urządzon y na miejsc u ogrodu kościoła garnizo -
 noweg o i dzisiejszych zabudowa ń z a ty m kościo-
@@ -71,50 +71,50 @@ w . pręgierz , w XV I w . mieścił się skład wosk u
 (równie ż z grzywien ) i utrzymywan o na nim
 wag i miejskie . Za Zygmunt a III doprowadzon o
 wod ę rurami drewnianemi .
-BAZYLJAŃSK A — przedte m Górna, wiodąc a
+- BAZYLJAŃSK A — przedte m Górna, wiodąc a
 do dawneg o opactw a OO. Bazyljanó w na Koloży .
-BEDNARSK A — jedna z dawnyc h Podgórnych .
-BEM A generał a — obok kosza r tejż e nazwy .
-BERNARDYŃSK A — obok dawneg o klasz -
+- BEDNARSK A — jedna z dawnyc h Podgórnych .
+- BEM A generał a — obok kosza r tejż e nazwy .
+- BERNARDYŃSK A — obok dawneg o klasz -
 toru OO . Bernardynów , którz y tu osiedli za Ka -
 zimierz a Jagiellończyka . Był a to dawn a „ułecz -
 ka na Kurhan " z a Zygmunt a Augusta . Bernardyń -
 ską nazywan o równie ż częś ć ul. Mieszczańskiej.
-BIAL A — na przedmieściu zaniem.
-BIAŁOSTOCK A - tamże .
-BIENIECKIEG O dra — przedte m Nowa .
-BOBROW A — z-k Młynarsk i — na pamiątk
+- BIAL A — na przedmieściu zaniem.
+- BIAŁOSTOCK A - tamże .
+- BIENIECKIEG O dra — przedte m Nowa .
+- BOBROW A — z-k Młynarsk i — na pamiątk
 ę istnienia kilku czarnyc h bobró w w latach
 1927 — 1930 w wal e portowy m Zarząd u Dró g
 Wodnych . Jeden z tyc h bobró w stał się chlubą
 M. Muzeu m Przyrodniczeg o w Grodnie , a reszta
 wyemigrował a do Litw y kowieńskiej .
-BOGUSŁAWSKIEG O Wojciech a — twórc y
+- BOGUSŁAWSKIEG O Wojciech a — twórc y
 teatru polskiego — ul. Teatralna . Bogusławsk i
 grywa ł w Grodni e za Stanisław a Augusta .
-BONIFRATERSK A — dawnie j Dziemianow -
+- BONIFRATERSK A — dawnie j Dziemianow -
 ska, a późnie j — Tatarsk a — na pamiątk ę istnienia
 prz y te j ulic y (u wie ż ciśnień) klasztoru
 O O. Bonifrató w ze szpitalem.
-BOŚNIACK A — Telegraficzna . Bośniack ą
+- BOŚNIACK A — Telegraficzna . Bośniack ą
 pierwsz ą za Tyzenhauz a nazywan o ul. Poczto -
 w ą , a B. drug ą — późniejsz ą Telegraficzną .
-BOTANICZN A — jedn a z Dzielnyc h — w
+- BOTANICZN A — jedn a z Dzielnyc h — w
 sąsiedztwi e ogrodu miejskiego , a dawneg o bota -
 nicznego, założoneg o prze z znakomiteg o uczonego,
 prof. J. Giliberta, któr y załóżył w Grodni e
 z a Stanisława August a równie ż szkoł ę lekarską ,
 przeniesioną późnie j do Wilna , gdzi e stała się
 wydziałe m lekarski m Szkoł y Głównej .
-BOŻNICZN A — na przedmieści u zaniem.
+- BOŻNICZN A — na przedmieści u zaniem.
 obok zabytkowe j bożnic y drewnianej .
-BROWAROW A — ob. Karmelicka .
-BRYGIDZK A — dawn a W . Jezierska , póź -
+- BROWAROW A — ob. Karmelicka .
+- BRYGIDZK A — dawn a W . Jezierska , póź -
 nie j Kupiecka . Nazw ę otrzymał a od klasztoru
 przedte m PP. Brygide k (od 1642 r.), prze d wojn ą
 światow ą objęteg o prze z Zgromadzeni e SS . Nazaretanek
 .
-BRZOZOW A - drug a równoległ a do Skidelskie
+- BRZOZOW A - drug a równoległ a do Skidelskie
 j (od szosy).
 
 ---
