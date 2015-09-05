@@ -10,11 +10,14 @@ OSOBNE ODBICIE Z WYDAWNICTWA KSIĘGARNI E. IBERSKIEGO W GRODNIE: PLAN M. GRODNA
 
 ---
 
-NAZWY PLACÓW I ULIC
-GRODZIEŃSKICH
-DAWN E I DZISIEJSZ E
-Nazwy placów i ulic grodzieńskich
-dawne i dzisiejsze.
+NAZWY PLACÓW I ULIC GRODZIEŃSKICH
+
+DAWNE I DZISIEJSZE
+
+---
+
+Nazwy placów i ulic grodzieńskich dawne i dzisiejsze.
+
 Rad a Miejsk a m. Grodna w d. 10 lutego
 1931 r. uchwalił a szere g zaprojektowanyc h prze z
 specjalną komisj ę zmian w nazwac h uli c grodzieńskich.
