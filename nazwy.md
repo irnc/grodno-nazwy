@@ -34,11 +34,9 @@ usytuowania, jako też niektóre nazwy późniejsze, które utrzymały się do
 ostatnich czasów, chocia ż zostały zmienione (Skarbowa = im. Zyg. Wróblewskiego,
 Policyjna = Listowskiego, Telegraficzna = Bośniacka i t. p.).
 
-Skorowid z poniższy , spodziewa ć się należy ,
-iż ułatwi w znaczne j mierz e w orjentowani u się
-co do usytuowani a placów i ulic w Grodnie , ja -
-ko te ż w licznyc h ich nazwac h — dawnyc h
-i dzisiejszych.
+Skorowidz poniższy, spodziewać się należy, iż ułatwi w znacznej mierze w
+orjentowaniu się co do usytuowania placów i ulic w Grodnie, jako też w licznych
+ich nazwach — dawnych i dzisiejszych.
 
 \* * *
 
