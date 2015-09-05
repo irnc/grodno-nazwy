@@ -53,6 +53,9 @@ ARTYLERYJSKA .
 ARTYLERYJSK I z- k otrzyma ł nazwę :
 U L . KONNA .
 AUGUSTOWSKA .
+
+---
+
 BAGATEL A — międz y Garncarsk ą a Pił-
 sudskiego.
 BAGN O — na przedmieściu zaniemeńskiem ,
@@ -113,6 +116,9 @@ przedte m PP. Brygide k (od 1642 r.), prze d wojn ą
 .
 BRZOZOW A - drug a równoległ a do Skidelskie
 j (od szosy).
+
+---
+
 CEGLAN A — na Zawierszczyźnie .
 CERKIEWN A — na przedmieściu zanie -
 meńskiem.
@@ -136,6 +142,9 @@ CZWARTACK A — ku uwiecznieni u boha -
 terskieg o 4 pułku p. linjowe j z powstani a listopadoweg
 o — jedna z b. Rzeźnickich .
 CZYST A — na N. Kolonji.
+
+---
+
 DOMINIKAŃSK A — dawnie j (XV I — XVIII
 w w . ) Wileńska , późnie j Soborna .
 DRUCK A — od Przedmiejskie j w kierunku
@@ -150,7 +159,13 @@ Kośm y i Demian a na tereni e dworu wielkokiążę -
 cego, któr y tu istniał w XI V — X V ww . i prze z
 Aleksandr a Jagiellończyk a w 1494 r. został na -
 dan y OO . Bernardynom .
+
+---
+
 EKONOMICZN A — na przedmieściu zanie m
+
+---
+
 FLISACK A — w pobliżu stacji pomp .
 FORDON A Józefa, ks. franciszkanina — obok
 klasztoru XX . Franciszkanó w na przedm. zaniem.
@@ -160,6 +175,9 @@ Grodnianinie .
 FRANCISZKAŃSK A — obok klasztoru XX .
 Franciszkanów.
 FURMAŃSK A — na przedm . zaniem.
+
+---
+
 GARBARSK A — jedn a z b. Górnych .
 GARNCARSK A powstał a pod wałam i obronnemi,
 któr e istniały jeszsz e w 1825 r.
@@ -178,6 +196,9 @@ GWARDJAŃSK A — jedna z b. Franciszkań-
 skich.
 GWARN A — u Krzywe j (w pobliżu Zam -
 kowej).
+
+---
+
 HARCERSK A — ku uczczeni u waleczneg o
 hufca , któr y bronił przepraw y prze z Niemen w
 czasi e inwazji bolszewickie j w 1920 r. Obok
@@ -202,7 +223,13 @@ Skalimanowskie j i „nad rowe m Horodnicy " (z-ku
 Maryjńskiego).
 HUTNICZ A — obok hut y szklane j na przedm.
 zaniem.
+
+---
+
 INDURSK A — na przedm. zaniem.
+
+---
+
 JAGIELLOŃSK A — dawn a Aleksandrowsk a
 (za czasó w ros. ) i Warszawsk a (od Brygidzkie j
 do wież y ciśnień).
@@ -221,6 +248,9 @@ JĘCZMIENN A — na przedm. zaniem.
 JURYZDYK A — jedn a z b. Fabrycznyc h
 n ad Horodniczank ą w pobliżu Zamk u Sta -
 rego.
+
+---
+
 KACZ A — międz y Młynarsk ą a Sokolnicz ą
 na przedm . zaniem.
 KADROW A — na Pohulance .
@@ -300,6 +330,9 @@ w sąsiedztwi e któreg o uliczka w XV I w. nazy -
 wał a się „ułeczk ą na Kurhan" .
 KURPIOWSK A — na przedm. zaniem.
 KURZ A — od Krzywej .
+
+---
+
 LEGJONOW A — od Ślimak a w kierunku
 szos y Lidzkiej.
 LELEWEL A J. — przecina Lipową .
@@ -335,6 +368,9 @@ Horodnic y (słynni tkacze).
 ŁOWIECK A — jedn a z b. Franciszkańskich.
 T u zaczyna ł się zwierzynie c królewsk i ( w kierunku
 Łosośny).
+
+---
+
 MAGISTRACK A — obok Magistratu m. Grod
 na — od Dominikańskiej.
 MAKOW A — obok teatru miejskiego . (Mak
@@ -362,6 +398,9 @@ MONOPOLOW A — od 11 Listopada (b. Kre -
 sowej).
 MOSTOWA .
 MYDLAN A — od Krzywej .
+
+---
+
 NAJDUS A Leon a — miłośnika przyrod y
 i poet y żydowskiego , zmarłeg o w 1918 r. i pochowaneg
 o w Grodni e na nowy m cmentarz u
@@ -394,6 +433,9 @@ w Grodni e w 1880 r. Pisał a o ni m E. Orzesz -
 kow a w nowel i p. t. „Da j kwiatek" . —Jedn a z b.
 Szkolnych .
 NOW A — obecni e im. dra Bienieckiego .
+
+---
+
 OBJAZDOW A — na przedm. zaniem.
 OBOŹN A — przedte m Obozowa .
 OBRONN A — poniże j Podolne j nad Niemnem.
@@ -414,6 +456,9 @@ autorka i obywatelk a spędziła).
 OWCZ A — jedna z b. Fabrycznyc h — od rz.
 Horodniczanki.
 OWOCOW A - u Rynk u Rybiego .
+
+---
+
 PEOWIACK A — równoległ a do Skidelskie j
 ( w końcu) — ku uczczeni u P. O. W . w Grodnie .
 PEREC A — b. Wyzwolenia . Dr. L. Pere c
@@ -485,6 +530,9 @@ domu znakom . autorki).
 PTASI A — od Krzywej .
 PUST A — od Przedmiejskie j do Niemna .
 PUSZKINA .
+
+---
+
 RABIEJOWSK A — na przedm . zaniem Jedna
 z najstarszyc h naz w ulic w Grodnie , lec z
 był a w śródmieściu.
@@ -524,6 +572,9 @@ należąceg o do kościoła garnizonowego .
 RYSI A — na przedm. zaniem. (międz y
 Gdańsk ą a Knyszyńską).
 RZEŹNICK A — od Grandzickiej.
+
+---
+
 SIENN Y RYNEK .
 SKIDELSK A — dawnie j był a nazywan a W .
 Jezierską .
@@ -580,6 +631,9 @@ od Zamkowej .
 do Kościuszki.
 ŚWISŁOCK A — na przedm . zaniem. (międz y
 Grochowsk ą a Skórniczą).
+
+---
+
 TARTACZN A — nad Niemne m (od Przed -
 miejskiej).
 TEATRALN Y PLAC .
@@ -602,7 +656,13 @@ TYZENHAUZ A PLA C - inacze j Wolnośc i
 (b. Gubernatorski, późnie j Teatralny . — Pomni k
 tego znakomiteg o starosty i podskarbieg o w . ks.
 lit. w kościel e po-jezuickim, obecni e farnym).
+
+---
+
 UŁAŃSK A — na przedm . zaniem.
+
+---
+
 WAPIENN A — międz y Glinianą a Garbarsk ą
 (od Wileńskiej).
 WARZYWN A — od Krzywej .
@@ -628,6 +688,9 @@ WYSOCKIEG O Piotr a — od ul. Kościuszki
 (za tore m kol.).
 WYSOK A — na przedm. zaniem.
 WYZWOLENI A — dziś d-ra Pereca .
+
+---
+
 ZAJECZ A — międz y Kolejow ą a Sobieskiego .
 ZAKRĘ T — od Podolne j do Niemna .
 ZAMKOWA .
@@ -657,6 +720,9 @@ lucińską.
 Kresową ) a Poniatowskiego .
 ŻÓRAWI A — od Przedmiejskiej .
 ŻYTNI A — u maj. Stanisławów .
+
+---
+
 WSZELKIE PRAWA ZASTRZEŻONE.
 
 ---
