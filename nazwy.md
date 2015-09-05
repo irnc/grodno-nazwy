@@ -4,9 +4,12 @@ DAWNE I DZISIEJSZE
 
 W OŚWIETLENIU JÓZEFA JODKOWSKIEGO
 
-GRODN O 1 9 3 2
-Zakłady Graficzne Ł. Małachowicza Grodno, Horodniczańska 3. OSOBN E ODBICI E Z WYDAWNICTW A KSIĘGARN I
-E. IBERSKIEG O W GRODNIE : PLA N M. GRODN A
+GRODNO 1932
+
+OSOBNE ODBICIE Z WYDAWNICTWA KSIĘGARNI E. IBERSKIEGO W GRODNIE: PLAN M. GRODNA
+
+---
+
 NAZWY PLACÓW I ULIC
 GRODZIEŃSKICH
 DAWN E I DZISIEJSZ E
@@ -659,3 +662,7 @@ Kresową ) a Poniatowskiego .
 ŻÓRAWI A — od Przedmiejskiej .
 ŻYTNI A — u maj. Stanisławów .
 WSZELKIE PRAWA ZASTRZEŻONE.
+
+---
+
+Zakłady Graficzne Ł. Małachowicza Grodno, Horodniczańska 3.
