@@ -27,16 +27,12 @@ krajowi obywatelach. Na pamiątkę 500-lecia zgonu Witolda, w. księcia lit.,
 twórcy grodu grodzieńskiego i księcia grodzieńskiego, jego imeniem została
 nazwana ul. Bankowa.
 
-Na podstawi e prac y Dyr . Muzeum Państwo -
-weg o w Grodnie , p. Józef a Jodkowskiego, p. t.
-„Ulic e grodzieński e w świetl e historji i topologji "
-(Grodno, 1931) niże j podane są objaśnieni a odnośni
-e pochodzeni a wiel u naz w ulic dawnyc h
-l ub ich usytuowania , jak o te ż niektór e nazw y
-późniejsze , któr e utrzymał y się do ostatnich
-czasów, chocia ż zostały zmienione (Skarbow a =
-im. Zyg . Wróblewskiego , Policyjn a = Listow -
-skiego, Telegraficzn a = Bośniack a i t. p.).
+Na podstawie pracy Dyr. Muzeum Państwowego w Grodnie, p. Józefa Jodkowskiego,
+p. t. „Ulice grodzieńskie w świetle historji i topologji" (Grodno, 1931) niżej
+podane są objaśnienia odnośnie pochodzenia wielu nazw ulic dawnych lub ich
+usytuowania, jako też niektóre nazwy późniejsze, które utrzymały się do
+ostatnich czasów, chocia ż zostały zmienione (Skarbowa = im. Zyg. Wróblewskiego,
+Policyjna = Listowskiego, Telegraficzna = Bośniacka i t. p.).
 
 Skorowid z poniższy , spodziewa ć się należy ,
 iż ułatwi w znaczne j mierz e w orjentowani u się
