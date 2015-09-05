@@ -31,6 +31,7 @@ lach. Na pamiątk ę 500-lecia zgonu Witolda , w .
 księci a lit., twórc y grodu grodzieńskieg o i księcia
 grodzieńskiego , jeg o imeniem została nazwan a
 ul. Bankowa .
+
 Na podstawi e prac y Dyr . Muzeum Państwo -
 weg o w Grodnie , p. Józef a Jodkowskiego, p. t.
 „Ulic e grodzieński e w świetl e historji i topologji "
@@ -41,12 +42,15 @@ późniejsze , któr e utrzymał y się do ostatnich
 czasów, chocia ż zostały zmienione (Skarbow a =
 im. Zyg . Wróblewskiego , Policyjn a = Listow -
 skiego, Telegraficzn a = Bośniack a i t. p.).
+
 Skorowid z poniższy , spodziewa ć się należy ,
 iż ułatwi w znaczne j mierz e w orjentowani u się
 co do usytuowani a placów i ulic w Grodnie , ja -
 ko te ż w licznyc h ich nazwac h — dawnyc h
 i dzisiejszych.
-* * *
+
+\* * *
+
 AKADEMICK A — Kirchowa , późnie j Koś -
 cielna — na pamiątk ę istnienia szkół w zabudowaniach
 , należącyc h obecni e do ks. Czetwertyń -
